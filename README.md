@@ -5,4 +5,4 @@ valuable insights to inform business decisions.
 
 PDF LINK: https://drive.google.com/file/d/1F1cpEMSACYuUiPc6h7ycml-u5Nb6IH02/view?usp=sharing
 
-PPT LINK: 
+PPT LINK: https://drive.google.com/file/d/1F1cpEMSACYuUiPc6h7ycml-u5Nb6IH02/view?usp=sharing
